@@ -1,1 +1,5 @@
 # LabSemana02
+Lavado Flores, Renzo Marcelo
+Pacherres Tam, Santiago Alonso
+Morales Chunga, Carlos Morales
+Díaz Calderón, Silvana Paola
